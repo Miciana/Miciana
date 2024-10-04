@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Miciana
+- 👀 I’m interested in Trekking 
+- 🌱 I’m currently learning Nepali language
+- 💞️ I’m looking to trek together to Mount Api
+- follow me and add me and leave a meaasge
